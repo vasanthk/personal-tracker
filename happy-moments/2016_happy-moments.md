@@ -7,3 +7,7 @@ Other than that - yesterday I gave my first ever talk to college students at [Br
 
 It was quite a lot of work than I anticipated, but was quite fulfilling to hear that the students found it very valuable. So, there's my 1st happy moment.
 There's definitely more to improve on with my presentation skills - but happy for how it went considering it's my first big talk :) Need to rehearse more next time.
+
+**11/12/2016**
+
+Attended the "Snatch" crossfit seminar at NC Fit - followed by practice of progressions. Snatch is still one of the hardest compound movements in crossfit for me. Was good to get some guidance on its technique. Felt good to gets some weights up overhead after a while.
