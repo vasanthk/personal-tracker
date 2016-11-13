@@ -10,4 +10,4 @@ There's definitely more to improve on with my presentation skills - but happy fo
 
 **11/12/2016**
 
-Attended the "Snatch" crossfit seminar at NC Fit - followed by practice of progressions. Snatch is still one of the hardest compound movements in crossfit for me. Was good to get some guidance on its technique. Felt good to gets some weights up overhead after a while.
+Attended the "Snatch" crossfit seminar at NC Fit - followed by practice of progressions. Snatch is still one of the hardest compound movements in crossfit for me. Was good to get some guidance on its technique. Felt good to get some weights up overhead after a while.
