@@ -11,3 +11,11 @@ There's definitely more to improve on with my presentation skills - but happy fo
 **11/12/2016**
 
 Attended the "Snatch" crossfit seminar at NC Fit - followed by practice of progressions. Snatch is still one of the hardest compound movements in crossfit for me. Was good to get some guidance on its technique. Felt good to get some weights up overhead after a while.
+
+**11/13/2016**
+
+Watched the movie [Arrival](http://www.imdb.com/title/tt2543164/) with a few friends. Was quite blown away by how artisitic the movie was. Each of us had a different interpretation for scenese in the movie, which the beauty of any piece of art. Quite an inspiring message as well. I fell sick and this movie was quite a refreshing break.
+
+**11/14/2016**
+
+Quite often I remind myself on how to be a good developer and to let go of the fear of insecurity while learning or trying out new things. This talk on ["The myth of the “Real JavaScript Developer”"](https://www.youtube.com/watch?v=Xt5qpbiqw2g) by [Brenna O'Brien](https://twitter.com/brnnbrn) was a great reminder to all of this. Other than this still sick :mask:
