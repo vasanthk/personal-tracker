@@ -14,8 +14,8 @@ Attended the "Snatch" crossfit seminar at NC Fit - followed by practice of progr
 
 **11/13/2016**
 
-Watched the movie [Arrival](http://www.imdb.com/title/tt2543164/) with a few friends. Was quite blown away by how artisitic the movie was. Each of us had a different interpretation for scenese in the movie, which the beauty of any piece of art. Quite an inspiring message as well. I fell sick and this movie was quite a refreshing break.
+Watched the movie [Arrival](http://www.imdb.com/title/tt2543164/) with a few friends. Was quite blown away by how artisitic the movie was. Each of us had a different interpretation for scenes in the movie, which the beauty of any piece of art. Quite an inspiring message as well. I fell sick today and this movie was quite a refreshing break from just lying down in the bed hoping to get fine soon.
 
 **11/14/2016**
 
-Quite often I remind myself on how to be a good developer and to let go of the fear of insecurity while learning or trying out new things. This talk on ["The myth of the “Real JavaScript Developer”"](https://www.youtube.com/watch?v=Xt5qpbiqw2g) by [Brenna O'Brien](https://twitter.com/brnnbrn) was a great reminder to all of this. Other than this still sick :mask:
+Quite often I remind myself to let go of the fear of insecurity while learning or trying out new things. Today I watched this talk on ["The myth of the “Real JavaScript Developer”"](https://www.youtube.com/watch?v=Xt5qpbiqw2g) by [Brenna O'Brien](https://twitter.com/brnnbrn) and it was a good reaffirmation to some of my beliefs. Other than this still sick :mask:
