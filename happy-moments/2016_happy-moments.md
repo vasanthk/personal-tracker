@@ -19,3 +19,7 @@ Watched the movie [Arrival](http://www.imdb.com/title/tt2543164/) with a few fri
 **11/14/2016**
 
 Quite often I remind myself to let go of the fear of insecurity while learning or trying out new things. Today I watched this talk on ["The myth of the “Real JavaScript Developer”"](https://www.youtube.com/watch?v=Xt5qpbiqw2g) by [Brenna O'Brien](https://twitter.com/brnnbrn) and it was a good reaffirmation to some of my beliefs. Other than this still sick :mask:
+
+**11/15/2016**
+
+Still sick, but went to work and it was a pretty hectic day. My routine is off and everything did seem a bit disrupted. But this [video](https://www.youtube.com/watch?v=UctRZ91m9XA) of a hysterical kid laughing just reminded me that life is more abou the happy moments than the tough times which keep coming and going. "Keep smiling and laughing even during tough times" I reminded myself :)
