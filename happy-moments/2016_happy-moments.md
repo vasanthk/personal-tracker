@@ -23,3 +23,13 @@ Quite often I remind myself to let go of the fear of insecurity while learning o
 **11/15/2016**
 
 Still sick, but went to work and it was a pretty hectic day. My routine is off and everything did seem a bit disrupted. But this [video](https://www.youtube.com/watch?v=UctRZ91m9XA) of a hysterical kid laughing just reminded me that life is more abou the happy moments than the tough times which keep coming and going. "Keep smiling and laughing even during tough times" I reminded myself :)
+
+**11/16/2016**
+
+Caught up with Planet Earth 2 - Episode 2 on Mountains and life in extreme conditions. It's quite fascinating. Reminded me that survuval instinct is probably the most powerful thing around. It's quite amazing to see how life survived in some of the harshest conditions (Himalayan Ibex), penguins in a volcanic mountain and how bobcats prey even in harshest of ice caps. Really amazing! 
+
+**11/17/2016**
+
+Chill day -- Had a team lunch with my manager. Had a pretty good conversation about the next gen of tech and why progressive web apps could be a thing we should bet on. I love such intense technology driven conversations were we just simply nerd out :) Later in the day my manager and another colleague kind of schooled me on financial saving options etc. I am real noob at it. It was really great to get some solid inputs and advise from such experienced folks :)
+
+**11/18/2016**
