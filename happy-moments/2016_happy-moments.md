@@ -33,3 +33,17 @@ Caught up with Planet Earth 2 - Episode 2 on Mountains and life in extreme condi
 Chill day -- Had a team lunch with my manager. Had a pretty good conversation about the next gen of tech and why progressive web apps could be a thing we should bet on. I love such intense technology driven conversations were we just simply nerd out :) Later in the day my manager and another colleague kind of schooled me on financial saving options etc. I am real noob at it. It was really great to get some solid inputs and advise from such experienced folks :)
 
 **11/18/2016**
+
+Watched Dr. Strange - A good treat for the eye and mind. I pretty much seem to get inspired by most movies these days... Haha. They all have an essense beyond all the jazz and entertainment. Something very fundamnetal and dealing with the power of human spirit and things which man can achieve if they put their mind and body to it. Of course super human movies are different - but the point is the same :)
+
+**11/19/2016**
+
+Pretty mellow day. Still recovering from sickness. Geeked out a bit reading up a lot on JavaScripty topics plus reading Brian Holt's complete intro to React - just as a refresher. Also, Jest's snapsh0t testing is pretty cool :)
+
+**11/20/2016**
+
+Watched Planet Earth - Forests episode. Yet another classic! Started reading a bit of the book "Crucial Conversations". Effective communication is one of the much needed skill I want to become highly effective in and tap into. 
+
+**11/21/2016**
+
+Today's a big day for Chess fans. Magnus Carlsen the reigning world champion lost his first game after 7 draws in his match against Karjakin for the title. Magnus is clearly the better player on paper, but kudos to Karjakin for handling pressure really well all along and just hanging in there. Sometimes, all it takes is to weather the storm and just hang in there for a little bit longer. It will be really interesting to see how Magnus handles presssure now with just 4 games left. We can expect quite a few fireworks in the games to comes. As a chess fan I can't be more excited :smiley:
