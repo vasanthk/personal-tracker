@@ -47,3 +47,7 @@ Watched Planet Earth - Forests episode. Yet another classic! Started reading a b
 **11/21/2016**
 
 Today's a big day for Chess fans. Magnus Carlsen the reigning world champion lost his first game after 7 draws in his match against Karjakin for the title. Magnus is clearly the better player on paper, but kudos to Karjakin for handling pressure really well all along and just hanging in there. Sometimes, all it takes is to weather the storm and just hang in there for a little bit longer. It will be really interesting to see how Magnus handles presssure now with just 4 games left. We can expect quite a few fireworks in the games to comes. As a chess fan I can't be more excited :smiley:
+
+**11/22/2016**
+
+On a social media detox for a bit - Been off Facebook for a few days. I did this for over 6 months last year and it was highly effective. This time for probably very lesser duration, but just to regroup thought and get into a routine. I have always had a love hate relationship with social media. So, I just like to step in and aout as and when needed :) The ability to turn on/off different switches to control various parameters in life is a pleasure in itself :)
