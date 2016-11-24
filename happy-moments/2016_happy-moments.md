@@ -51,3 +51,7 @@ Today's a big day for Chess fans. Magnus Carlsen the reigning world champion los
 **11/22/2016**
 
 On a social media detox for a bit - Been off Facebook for a few days. I did this for over 6 months last year and it was highly effective. This time for probably very lesser duration, but just to regroup thought and get into a routine. I have always had a love hate relationship with social media. So, I just like to step in and aout as and when needed :) The ability to turn on/off different switches to control various parameters in life is a pleasure in itself :)
+
+**11/23/2016**
+
+Finally back to normal after a couple of weeks of bein down with sickness. Lost quite a bit of muscle and stamina in the process. Crossfit is a bit too intense to get started with right away, so worked out in the apartment gym for a bit. Running + 7 minute blast workout + a few bench press and curls. Feels quite refreshing :smile:
