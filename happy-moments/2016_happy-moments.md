@@ -55,3 +55,12 @@ On a social media detox for a bit - Been off Facebook for a few days. I did this
 **11/23/2016**
 
 Finally back to normal after a couple of weeks of bein down with sickness. Lost quite a bit of muscle and stamina in the process. Crossfit is a bit too intense to get started with right away, so worked out in the apartment gym for a bit. Running + 7 minute blast workout + a few bench press and curls. Feels quite refreshing :smile:
+
+**11/24/2016**
+
+Pretty Good Thanksgiving. There are a lot of people I need to be thankful to. Interestingly, I haven't met 90% of these people in real life. Thanks to the open source community for really inspiring me both porfessionally as well as personally. It really gave me a lot of confidence and motivation to learn and share things regularly. Plus I got inspired by soo many people and I tried to pick up great qualities for many of them. Especially [Dan Abramov](https://twitter.com/dan_abramov). He's my hero :smile:
+Another very important person I am very thankful to is my current manager at work - [Madhav](https://twitter.com/mdeverkonda). He has been a great influence in shaping me over the past few months and I learn a lot from him each day and love his thirst for knowledge and fierce go-getter attitude. Truly privileged to be working with him. Here's to an awesome year ahead for our team. Let's do this!
+
+**11/25/2016**
+
+Pretty mellow day. Hardly anyone at work - since it is Thanksgiving Friday. Our Web platform Electrode really stood uo well during this peak time. There were a lot of qns floating around if it ould scale well etc. for holiday traffic. However it did well with zero glitches. Really happy about that. Hats off to the entire team. Special thanks to [Alex Grigoryan](https://twitter.com/lexgrigoryan) for really pushing forward with the platform and adopting bleeding edge open source tech. A strategically gutsy high risk, high reward move. But glad to have people like this in the upper management. One more reason why I love working in WalmartLabs is it's tech stack and scale :smile:
