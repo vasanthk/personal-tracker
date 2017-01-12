@@ -66,4 +66,9 @@ Another very important person I am very thankful to is my current manager at wor
 Pretty mellow day. Hardly anyone at work - since it is Thanksgiving Friday. Our Web platform Electrode really stood uo well during this peak time. There were a lot of qns floating around if it ould scale well etc. for holiday traffic. However it did well with zero glitches. Really happy about that. Hats off to the entire team. Special thanks to [Alex Grigoryan](https://twitter.com/lexgrigoryan) for really pushing forward with the platform and adopting bleeding edge open source tech. A strategically gutsy high risk, high reward move. But glad to have people like this in the upper management. One more reason why I love working in WalmartLabs is it's tech stack and scale :smile:
 
 
----- I tried this for a few weeks and I like it. However, to some extent I did feel there were days when I just didn't push code and just added this in (which reflected as a contribution). I am getting back to the habit of working on side projects every day. So, pausing this for a bit :)---
+
+
+
+
+
+***---- I tried this for a few weeks and I like it. However, to some extent I did feel there were days when I just didn't push code and just added this in (which reflected as a contribution). I am getting back to the habit of working on side projects every day. So, pausing this for a bit :)---***
